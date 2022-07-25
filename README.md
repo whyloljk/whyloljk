@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @whyloljk 
+- 👀 I’m interested in Doom, persona, metal gear rising
+- 💞️ I’m looking to collaborate on games
+- 📫 How to reach me ...
